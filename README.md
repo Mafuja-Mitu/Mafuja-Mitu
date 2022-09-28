@@ -1,5 +1,7 @@
 ### Hi there 👋 I am Mafuja Akter Mitu, Welcome to my profile.
 
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F71664&center=true&vCenter=true&width=450&height=60&lines=Always+learning+new+things)
+
 # 💫 About Me:
 🔭 I’m currently studying on 11'th semester in the CSE department of BUBT<br><br>🌱 I’m currently learning Graphics Design<br><br>💬 Ask me about Anything<br><br>📫 How to reach me mahfujamitu71@gmail.com<br><br>⚡ Fun fact I am funny
 
