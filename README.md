@@ -1,4 +1,4 @@
-### Hi there 👋 I am Mafuja Akter Mitu
+### Hi there 👋 I am Mafuja Akter Mitu, Welcome to my profile.
 
 # 💫 About Me:
 🔭 I’m currently studying on 11'th semester in the CSE department of BUBT<br><br>🌱 I’m currently learning Graphics Design<br><br>💬 Ask me about Anything<br><br>📫 How to reach me mahfujamitu71@gmail.com<br><br>⚡ Fun fact I am funny
